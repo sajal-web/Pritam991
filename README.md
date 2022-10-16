@@ -1,3 +1,4 @@
+![logo](https://exceltable.com/en/templates/images/template6-1.gif) 
 <h1 align="center">Hi 👋, I'm Pritam Mani</h1>
 <h3 align="center">A passionate Computer Science Student from India</h3>
 
