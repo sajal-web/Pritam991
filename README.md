@@ -22,7 +22,7 @@
 
 - 💬 Ask me about **Data... **
 
-- 📫 How to reach me **code.mani76@outlook.com**
+- 📫 How to reach me **code.mani76@outlook.com** ** pritammanijoy2001@gmail.com**
 
 - ⚡ Fun fact **Data is like people – interrogate it hard enough and it will tell you whatever you want to hear.**
 
