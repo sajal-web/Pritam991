@@ -20,7 +20,7 @@
 
 - 📝 I regularly write articles on Knowledge Server
 
-- 💬 Ask me about **Data...**
+- 💬 Ask me about **Data... **
 
 - 📫 How to reach me **code.mani76@outlook.com**
 
